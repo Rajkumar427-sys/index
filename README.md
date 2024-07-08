@@ -1,1 +1,1 @@
-# index
+About school layout
